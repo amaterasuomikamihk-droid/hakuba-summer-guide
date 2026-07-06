@@ -1,0 +1,1 @@
+# hakuba-summer-guide
